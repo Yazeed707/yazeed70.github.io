@@ -1,1 +1,0 @@
-# yazeed70.github.io
